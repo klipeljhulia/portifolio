@@ -1,1 +1,1 @@
-[<img width="1860" height="903" alt="image" src="https://github.com/user-attachments/assets/90199c95-d0eb-4521-bcdb-691034b73ef2" /># portifolio](https://claude.ai/share/20f07413-7f9c-4d93-a09f-f8f574f1fad2)
+
